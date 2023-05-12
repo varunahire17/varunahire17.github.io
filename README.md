@@ -1,1 +1,2 @@
-# varunahire17.github.io
+# Cool Cutz Landing Page
+
